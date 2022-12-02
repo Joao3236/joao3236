@@ -12,6 +12,6 @@ Here are some ideas to get you started:
 - 💬 faco academia 3 vezes na semana
 - 📫 tenho treinos de basquete 5 vezes na semana
 - 😄 pode me chamar de joao
+- 🥪i can cook
  
-
 
